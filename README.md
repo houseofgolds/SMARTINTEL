@@ -1,0 +1,2 @@
+# SMARTINTEL
+Educational
